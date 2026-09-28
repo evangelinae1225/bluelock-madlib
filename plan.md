@@ -1,0 +1,5 @@
+Today is the day you finally got to be a part of the Blue Lock Project! After you got accepted, you finally went to the designated building and saw *insert anime character name*, you didn't even know they played soccer. After you got your uniform you realized you were number *pick a number between 1-300* out of all the players, despite your number you decided to work hard. 
+
+Today was your match against another team, you were playing as an insert *soccer position*, which was easy due to you playing this position before. As you were on the field you saw Isagi *insert a verb* to the ball. You knew you needed to get the ball back so with *insert friend name,* allowing you to win the match and progressing through the game. 
+
+After that much you were hungry so you decided to eat \[insert food\], and went straight to rest afterwards. 
